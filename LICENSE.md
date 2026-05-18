@@ -1,4 +1,4 @@
-# 
+# exclusive Bitdefender Total Security لجهاز الكمبيوتر سكربتات هو أفضل Bitdefender Total Security لجهاز الكمبيوتر سكربتات مع التحكم الأبوي و المسح المجدول. آمن، موثوق، ومُحَسّن
 
 
 
